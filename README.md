@@ -10,7 +10,15 @@
 
 
 
-<div align="center">
-  <img src="(https://cdn.discordapp.com/attachments/1530531128488886374/1544275299523625022/481273bciaj2qgs7.gif?ex=6a97e9f2&is=6a969872&hm=d89ab36efef9b123a1e7cb27c55878d2617ac60483db3b7f4ccd30be2fa52def&)"="400x350">
-</div> 
+# Source - https://stackoverflow.com/a/63024043
+# Posted by Jon Wood
+# Retrieved 2026-09-01, License - CC BY-SA 4.0
 
+![image](https://cdn.discordapp.com/attachments/1530531128488886374/1544275299523625022/481273bciaj2qgs7.gif?ex=6a97e9f2&is=6a969872&hm=d89ab36efef9b123a1e7cb27c55878d2617ac60483db3b7f4ccd30be2fa52def&)
+<!--
+Source - https://stackoverflow.com/a/63024043
+Posted by Jon Wood
+Retrieved 2026-09-01, License - CC BY-SA 4.0
+-->
+
+<img src="https://user-images.githubusercontent.com/link-to-your-image.png" width="200" />
