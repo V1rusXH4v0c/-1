@@ -1,4 +1,4 @@
 
 
 
-![image alt](https://cdn.discordapp.com/attachments/1530531128488886374/1544253211240562739/sonic_hedgehog_PNG29_2.png?ex=6a97d560&is=6a9683e0&hm=d7c290c4af5d7b51b847d9d95297c73d3bb63b9b8f286bf2772418a1be360ae3&)
+![image alt](https://cdn.discordapp.com/attachments/1530531128488886374/1544271463106748486/82819-sonic-advance-adventure-artwork-the-wing-hedgehog.png?ex=6a97e65f&is=6a9694df&hm=b06c09c6cee424b4ff61068fd506148ab7c16d7667338f72d5d1ca312af7e867&)
