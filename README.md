@@ -10,6 +10,3 @@
 
 
 
-![image](https://cdn.discordapp.com/attachments/1530531128488886374/1544275299523625022/481273bciaj2qgs7.gif?ex=6a97e9f2&is=6a969872&hm=d89ab36efef9b123a1e7cb27c55878d2617ac60483d)
-<img width="219" height="75" alt="1000167241" src="https://github.com/user-attachments/assets/8cabc139-b6a4-4137-ad4c-d2351457daba" />
-
