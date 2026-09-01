@@ -15,4 +15,7 @@
 
 
 
-![Image alt](https://cdn.discordapp.com/attachments/1530531128488886374/1544237748859306095/kill-people-knuckles.gif?ex=6a97c6f9&is=6a967579&hm=62e84702a087ad6488414dcf204627e07049783e64fb72492d34ff70c67777f0&)
+<div align="center">
+  <img src="https://github.com" width="400">
+</div>
+
