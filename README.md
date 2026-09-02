@@ -22,7 +22,9 @@
 
 ![image alt](https://cdn.discordapp.com/attachments/1530531128488886374/1544241564321193994/2051a716.gif?ex=6a987347&is=6a9721c7&hm=3e8755f9f03436f631ad8d1db7d2567273f3a293164d4fbd51e612ad2f062a4e&) ![image alt](https://cdn.discordapp.com/attachments/1530531128488886374/1544595285962137630/tumblr_2f50e75ec11565939c03a785af2c874e_de28dd11_500.gif?ex=6a9913f5&is=6a97c275&hm=00dd85ab633249d923fcf2ff8efda9567c4ba998dd8a3e361a5c8c32e99606c2&)
 ![image alt](https://cdn.discordapp.com/attachments/1530531128488886374/1544271463106748486/82819-sonic-advance-adventure-artwork-the-wing-hedgehog.png?ex=6a97e65f&is=6a9694df&hm=b06c09c6cee424b4ff61068fd506148ab7c16d7667338f72d5d1ca312af7e867&)
+
 ![image alt](https://cdn.discordapp.com/attachments/1530531128488886374/1544595285962137630/tumblr_2f50e75ec11565939c03a785af2c874e_de28dd11_500.gif?ex=6a9913f5&is=6a97c275&hm=00dd85ab633249d923fcf2ff8efda9567c4ba998dd8a3e361a5c8c32e99606c2&)
+
 🌀 Oh boy, look. *wink wink* This is beauty right over here *whistles*
 ![Image alt](https://cdn.discordapp.com/attachments/1530531128488886374/1544581652389306378/tumblr_b3af2d4e6f38425ccc5c02a250ae0537_7faf373e_2048.png?ex=6a990742&is=6a97b5c2&hm=b8f381c615ee7e41f17214f7fc1bafbd980494279c33bb9153b3c48383e193b4&)
 
